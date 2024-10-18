@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ninjathewidowmaker
-- 👀 I’m interested in nothing
-- 🌱 I’m currently learning nothing
-- 💞️ I’m looking to collaborate on nothing
+- 👀 I’m interested in Nothing
+- 🌱 I’m currently learning Nothing
+- 💞️ I’m looking to collaborate on Nothing
 - 📫 you can reach me here
 - 😄 Pronouns: me/myself
 - ⚡ Fun fact: yes I was reffering to Nothing
